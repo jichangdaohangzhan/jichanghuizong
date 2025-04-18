@@ -183,7 +183,7 @@ FATCAT 肥猫云是一家 2023 年成立的新机场，目测是某大机场的�
 
 **访问官网**：点击下方链接进入
 
-[ **肥猫云机场官网地址入口**««](https://inv01.fatcatcloud.cc/register?aff=uRp5zDT6)
+[ **肥猫云机场官网地址入口**««](https://missljp12.fcvipaff.cc/register?aff=uRp5zDT6)
 
 [ **备用 - 量大便宜机场入口-月付9.9元300GB、24元1000G、40元2000GB**««](https://zz.silos.top/cheap/wtSaV85WAQ)
 
